@@ -1,0 +1,2 @@
+# SuperTrend-Trading
+SuperTrend Trading
